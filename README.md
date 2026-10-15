@@ -1,2 +1,1 @@
-I'm GK.
-These are my stuff.
+I'm Jeekay. I like to make stuff which pique my dopamine hit.
